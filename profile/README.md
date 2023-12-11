@@ -6,3 +6,5 @@ Síguenos en nuestras redes sociales:
  • https://twitter.com/BlitzMCNT
  • https://youtube.com/@BlitzMC
  • https://dsc.gg/BlitzMC
+
+ IP: mc.blitzmc.us / play.blitzmc.us
